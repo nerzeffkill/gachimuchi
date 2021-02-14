@@ -1,1 +1,0 @@
-                                       **GACHI MUCHI FAN CLUB**
